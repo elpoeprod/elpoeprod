@@ -1,6 +1,7 @@
 ### i am elpoep, stoopid cat lover that codes
 ### creator of elpAudio and everything related to it
-![image](https://github.com/user-attachments/assets/a5a06b1c-ad97-4e09-962b-71a6b0b2f947)
+![{E7AD3215-3554-48F3-8EE0-77D2548C5D06}](https://github.com/user-attachments/assets/52f30b8f-8584-4ed0-8571-a33ca294629a)
+
 
 i am male (he/him)
 
